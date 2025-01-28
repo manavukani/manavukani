@@ -1,6 +1,6 @@
 # Hi 👋, I'm Manav Ukani
 
-> Awestruck by the transformative potential of tech and data to shape the world 💫
+> Passionate about leveraging tech & data to drive innovation 💫
 
 ### About Me
 
